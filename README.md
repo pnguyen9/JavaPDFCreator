@@ -1,0 +1,1 @@
+A simple assessment on which I worked when I applied for an internship. 
